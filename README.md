@@ -1,3 +1,5 @@
+Interested in collaboration or supervision? Reach out. Response rate: high. Friendliness: adequate.
+
 Alexander Kilpatrick,  
 Associate Professor  
 Center for Language Research  
