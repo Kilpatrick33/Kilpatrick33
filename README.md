@@ -1,4 +1,5 @@
-Alexander Kilpatrick, Ph.D.
+Alexander Kilpatrick,
+
 Associate Professor
 Center for Language Research
 Director, Language, Cognition and Computation Lab
